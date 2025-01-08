@@ -1,4 +1,4 @@
-About Me
+About Me:
 I am Mohammad Imad Arif, an organized, efficient, and driven individual with a passion for learning and problem-solving. I thrive on discovering new ideas and implementing them effectively in practical scenarios. My strong communication skills enable me to collaborate seamlessly with teams and individuals, while my ability to listen and learn allows me to adapt quickly to new challenges.
 
 I am committed to using my talents and skills to achieve meaningful objectives and contribute to impactful projects.
